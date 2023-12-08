@@ -1,1 +1,1 @@
-# https://ramnathnayak07.github.io/Website-for-listing-recipes/
+# https://sanjayp2002.github.io/Recipies-list/
